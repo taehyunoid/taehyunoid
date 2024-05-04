@@ -1,7 +1,6 @@
 how i look at bro after i said KYAAAAAAA~!
 
-![](https://i.pinimg.com/564x/22/66/91/226691ef6c5babf32c3bc27f96878fce.jpg)
-
+![](https://i.pinimg.com/564x/30/95/26/3095265ced1b094dbab4e5c321e9ee63.jpg)
 
 
 
