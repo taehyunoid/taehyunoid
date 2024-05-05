@@ -1,3 +1,3 @@
  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae 
 
-[your world of text](https://www.yourworldoftext.com/~kangtaehyun/) say something here!!!!!!!!
+[guestbook](https://terrykang.123guestbook.com/) until i find some other website BRUH
