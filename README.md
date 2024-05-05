@@ -1,3 +1,3 @@
  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae  https://rentry.co/someonebethegyutomytae 
 
-[guestbook](https://terrykang.123guestbook.com/) pls sign
+[your world of text](https://www.yourworldoftext.com/~kangtaehyun/) say something here!!!!!!!!
