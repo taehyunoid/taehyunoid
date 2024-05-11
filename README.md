@@ -1,3 +1,3 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guestbook](https://terrykang.123guestbook.com/) leave a message !!!!!!
+feel free to sign my [guestbook](https://terrykang.123guestbook.com/) or [ywot](https://www.yourworldoftext.com/~nishimura/) :)) replies are guaranteed
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ywot](https://www.yourworldoftext.com/~nishimura/) leave a message 2.0 💪💪
+https://rentry.co/iloveyoumyglorioushandsomekingkangtaehyuniwilltakedownanyhaters
